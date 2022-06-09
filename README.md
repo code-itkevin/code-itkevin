@@ -1,0 +1,4 @@
+-  kevin 
+-  usually works on discord, apk development and many more interesting topics
+-  Python, Javascript, Css, Node.js
+-  Discord - kevin†ᴳᶻ#4618
